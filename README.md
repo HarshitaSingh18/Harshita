@@ -1,0 +1,3 @@
+# Harshita
+
+Hey! It's me Harshita Singh, I am 13year old girl who is currently learning some coding, I am in 8th class and have attended my first Hack Club Epoch at Delhi on 31 December 2022-1 January 2023 it was a great epperience.
